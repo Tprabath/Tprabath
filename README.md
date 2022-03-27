@@ -6,7 +6,7 @@
 
 Join my watsapp group 
 -
--my watsapp - https://wa.me/+94754913041=text?hi
+-my watsapp - https://wa.me/+94754913041
 
 <!---
 Tprabath/Tprabath is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
